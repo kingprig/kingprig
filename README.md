@@ -1,7 +1,7 @@
 Hi, I’m @kinprig
 I play Games
 Games I play: Friday Night Funkin, Roblox, Minecraft, Geometry dash, Angry birds, Bad Piggies (Angry birds and bad piggies are my childhood games so I won't quit those games anytime soon). I use socials like: Discord, Youtube, Twitch, Twitter, Reddit, etc, etc.
-socials down below
+socials down below                                                                                                                                                                    
 twitter: https://twitter.com/Kingprig1
 discord (i call it either discode or discrod) (Im putting my group link): https://discord.com/channels/936385168560783361/937186542953308160
 reddit: https://www.reddit.com/user/Kingprig
