@@ -10,10 +10,13 @@ gamebanana (used for Friday Night Funkin): https://gamebanana.com/members/206507
 My gmail in case you need me: kingprig70@gmail.com                                                                                                                        
 Im just a random person trying to make a living with this stuff                                                                                                                     
 pls sub to my youtube                                                                                                                                     
-if anyone can help me with Friday night Funkin mods (fnf mods) pls tell me on my gmail.                                                                   
+if anyone can help me with Friday night Funkin mods (fnf mods) pls tell me on my gmail.
+rules under then next sentencee
 if anyone has drawing requests dm me on my discord: kingprig#0338                                                                                               
-NO SENDING ME NSFW IF YOU DO YOU WILL BE BLOCKED ARE REPORTED TO GITHUB MODERADORS IF YOU DO.                                                                   
+Rule#1 NO SENDING ME NSFW IF YOU DO YOU WILL BE BLOCKED IF YOU DO.
+NO SENDING ME SUS LINKS
+Rule #3 NO DOXXING ME (Or anybody anywhere)
 hmmm...                                                                                                                                                     
 thats it                                                                                                                              	                              
-the thing above the "hmmm..." and under the "if anyone has drawing requests thing" is a rule that everyone has to follow if they want to talk to me.      
+the thing above the "hmmm..." and under the "if anyone has drawing requests thing" is are rules that everyone has to follow if they want to talk to me.      
 Ill update this when I have more things to put.
